@@ -8,14 +8,6 @@ yo
 <details>
   <summary> </summary>
   
-  you can call me whatever. I can't bring myself to care. osdd, bpd, mad 
-
-  I lack empathy for everyone except some friends, and have narcissistic thoughts.
-
-  interact at your own care. if you get upset by me, that is your own fault. (unless it truly IS my fault, which I will take accountability for.)
-
-  I selfship with the POSTAL 2 Dude, and will scold doubles if they decide to boundary break.
-
-  everyone has darkshipped before, antis are hypocrites.
+  you can call me whatever. I can't bring myself to care.
 </details>
 
